@@ -1,1 +1,1 @@
-![[Zephyros.png]]
+![[Zephyros Cropped.png]]
