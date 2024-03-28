@@ -1,1 +1,1 @@
-![[Zephyros Update.png]]
+![[Zephyros.png]]
