@@ -1,2 +1,2 @@
 ![[Sabre.jpg]]
-![[Sabre Token.jpg]]
+![[Sabre Token.png]]
